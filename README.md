@@ -1,3 +1,3 @@
 # 35_MIND-MINERS
 
-[LIVE DEMO.zip](https://github.com/user-attachments/files/24761651/LIVE.DEMO.zip)
+https://github.com/user-attachments/assets/ad28c468-5759-4bf2-bbe6-75bff67a072c
